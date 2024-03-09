@@ -1,2 +1,2 @@
 # Activities
-# Basic activities done by me
+Past activities done and completed
